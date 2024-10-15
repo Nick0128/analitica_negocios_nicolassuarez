@@ -7,7 +7,9 @@ Herramientas de analitica del negocio
 ### **Soy Publicista**
 *De la Universidad Jorge Tadeo lozano*
 
-#### Me especializo en
+#### Me especializo en:
 * ACCOUNT MANAGEMENT
 * SALES ANALITICS
 * GERENCIA EN CUENTAS
+
+[MIS REDES SOCIALES](https://www.instagram.com/srnicolas0128/)
